@@ -1,1 +1,0 @@
-Greek language sustainability cards
